@@ -1,1 +1,0 @@
-Yippee-ki-yay!
